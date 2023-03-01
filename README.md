@@ -1,6 +1,6 @@
 # 賽馬會科藝共融計劃: 2023年度展覽作品徵集
 作品提交 連結：
-http://tinyurl.com/IDEA-SubmitArtwork-2023
+https://tinyurl.com/IDEA-Submit
 
 現正邀請完成共融藝術✕科技學生工作坊的學生提交作品參與賽馬會科藝共融計劃2023年度展覽。
 
